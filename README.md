@@ -1,1 +1,5 @@
-# do-not-use-bitfinex-is-a-fraudster
+A serveral day ago, I deposited about 15.5eth to their exchange platform and plan to stored there, bitfinex do not require my any personal privary identidication.
+but when I trying to withdraw back to my wallet, it require much of my personal privary identidication, only I intend to withdraw to my origin wallet, it is blocked by bitfinex and restrict my account, all action are blocked. But i think if you require my identification, you must show me before my depositing!!!
+And identification vertification is ok, but why do you need so much personal information?? It is my personal privacy information, it is my right. I can never believe facebook can maintain my personal privacy security, and you? I can trust u??
+Bitfinex's after deposited withdraw request require your personal privary identidication, such as International Passport, National ID, Drivers License , Proof of Address Document (issued by the Government) , Bank Statement (most recent - black out any irrelevant information) , Personal Address, Bank Document, personal photo ....and more , why huobi . okex . poloniex do not need must of these?? It is my personal privacy information, it is my right!!
+so , do not use bitfinex please!!
